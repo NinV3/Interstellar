@@ -1,2 +1,2 @@
-# Interstellar
-winows not windows
+discontinued 
+was not succesfull
